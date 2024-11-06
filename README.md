@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hemilly-Gomes
 - 👀 I’m interested in Art
-- 🌱 I’m currently learning how to program
-- 💞️ I’m looking to collaborate on... idk
+- 🌱 I’m currently learning idk1
+- 💞️ I’m looking to collaborate on... idk2
 - 📫 How to reach me: email
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i want to sleep
